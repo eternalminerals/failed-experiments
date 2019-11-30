@@ -10,12 +10,12 @@ Background: Some strains of acne seems to be contagious & infectious from short 
 
 Results: Lymphedema of ear and neck lymph nodes, necrosis & swelling of earlobe
 
-## Oral antibiotics (Tetracycline, Doxycycline & others) as a cure to reactivated chickenpox misdiagnosed as acne
+## Oral antibiotics (Tetracycline, Doxycycline & others) as a cure to reactivated chickenpox misdiagnosed as acne during high school
 Background: Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 
 Results: Skin raised inflammation from 1 fingernail scratch 
 
-## 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian generic pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne
+## 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne after high school but before starting college
 Background: 
 - Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 - Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
