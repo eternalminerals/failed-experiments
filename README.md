@@ -25,7 +25,7 @@ Background:
 - Homemade zongzi by Chinese co-worker day before incident
 - YouTube music video with white guy with sadistic smile and 3 white dots in a triangle in his eyes, zoomed in, the same 3 white dots in a triangle in the storage lights of a police transport van
 - Researching chordoma after magnesium discovery
-- Thought they laced the food and drink with uranium after visiting OMG 2097 IRC chat and DarkUranium was a username there
+- Thought they laced the food and drink with uranium after visiting OMF 2097 IRC chat and DarkUranium was a username there
 - Concomitantly consumed ~50 magnesium citrate, strontium citrate, boron, calcium, and other pills to prevent uranium seeping into bones, causing chordoma
 - Concomitantly, 4chan said "I just found out my dad has been cheating and raping my mom for the last 10 years" and after all this due to the YouTube, thought this was real
 - Dad touched me with his stubble beard as he touched my hand with it as I tried to be asleep, and hit him after believing 4chan and YouTube and OMF 2097
