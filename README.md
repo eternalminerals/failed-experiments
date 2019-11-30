@@ -3,7 +3,7 @@
 ## MitoVitan dipped 5-ASA suppository as a cure to isotretinoin-induced colitis
 Background: COQ10 license plate ad in Chantilly, VA as I was driving home from work in Reston, VA
 
-Results: Delayed violent vomitting the night after, continued nausea, fatigue, increased frequency of BMs, rectal pain for more than 1 year
+Results: Delayed violent vomitting the night after, continued nausea, fatigue, increased frequency of BMs, rectal pain, discomfort & diarrhea for more than 1 year
 
 ## Topical formalin as a cure to contagious & infectious strains of acne
 Background: Some strains of acne seems to be contagious & infectious from short skin-to-skin touch contact
