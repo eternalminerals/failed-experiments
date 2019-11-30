@@ -4,6 +4,7 @@
 Background:
 - COQ10 license plate ad in Chantilly, VA as I was driving home from work in Reston, VA
 - Gangstalking, not sure what they want, can't tell if they are trying to hurt me or help me
+
 Results: Delayed violent vomitting the night after, continued nausea, fatigue, increased frequency of BMs, rectal pain, discomfort & diarrhea for more than 1 year
 
 ## Topical formalin as a cure to contagious & infectious strains of acne
