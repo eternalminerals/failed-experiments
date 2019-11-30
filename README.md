@@ -22,3 +22,4 @@ Background:
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
+-Qihan/Harry Zhang
