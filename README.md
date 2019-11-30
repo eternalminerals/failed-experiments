@@ -16,7 +16,9 @@ Background: Peer & majority encouraged non-vaccinated Chickenpox infection from 
 Results: Skin raised inflammation from 1 fingernail scratch 
 
 ## 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian generic pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne
-Background: Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
+Background: 
+- Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
+- Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
