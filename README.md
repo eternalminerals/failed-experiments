@@ -33,6 +33,9 @@ Background:
 - 4 years of peer rejection at TJHSST, especially from Asian girls and white boys
 - my aunt's tone of telling me that no girl would ever love me or want to be with me after the teacher, peer & majority rejection from high school after seeing the results of self surgery on a butt acne with sewing needle and 70% isopropyl alcohol, or just a safety pin and hot water/flame as disinfectant instead of a lancet and betadine/povidone iodine)
 - cigarette smoking and bleeding hollow world of warcraft, lymph node stagnation, no kicking bags, kicking air, jumping or olympic weightlifting discovered or allowed
+- forced gangstalked HIV speaker/fraud presentation (they did this to me at TJHSST) speech before graduation
+- health class was taught by trailer white hag
+- Mr. Charnitski made us watch a live birth video of an overweight pregnant woman with grey tinted skin and uncut genital hair in his class, which was based on memorization, forced reading and pop quizes 
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
