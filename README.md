@@ -19,6 +19,7 @@ Results: Skin raised inflammation from 1 fingernail scratch
 Background: 
 - Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 - Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
+- 4 years of peer rejection at TJHSST, especially from Asian girls and white boys
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
