@@ -35,7 +35,7 @@ Background:
 - cigarette smoking and bleeding hollow world of warcraft, lymph node stagnation, no kicking bags, kicking air, jumping or olympic weightlifting discovered or allowed
 - forced gangstalked HIV speaker/fraud presentation (they did this to me at TJHSST) speech before graduation
 - health class was taught by trailer white hag
-- Mr. Charnitski made us watch a live birth video of an overweight pregnant woman with grey tinted skin and uncut genital hair in his class, which was based on memorization, forced reading and pop quizes 
+- Mr. Charnitski made us watch a live birth video of an overweight pregnant woman with grey tinted skin and uncut genital hair in his class, which was based on memorization, forced reading and pop quizes as he yelled at me in front of the whole class when I was falling asleep in his lecture class based on us gaining his trust and forcing his authority by holding grades hostage
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
