@@ -22,6 +22,7 @@ Background:
 - Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 - Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
 - 4 years of peer rejection at TJHSST, especially from Asian girls and white boys
+- my aunt's tone of telling me that no girl would ever love me or want to be with me after the teacher, peer & majority rejection from high school after seeing the results of self surgery on a butt acne with sewing needle and 70% isopropyl alcohol, or just a safety pin and hot water/flame as disinfectant instead of a lancet and betadine/povidone iodine)
 
 Results: Eyebrows fell out first week of taking it after high school, endless depression and sadness, dry skin, permanantly thinned hair, skin wounds heal with scars, proctosigmoiditis with bleeding, tenesmus, constipation and up to 5 BMs/day
 
