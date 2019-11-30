@@ -31,5 +31,3 @@ Results: Eyebrows fell out first week of taking it after high school, endless de
 
 i would rather cut my dick off
 
-YIKES
-
