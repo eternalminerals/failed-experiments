@@ -23,7 +23,7 @@ Results: Skin raised inflammation from 1 fingernail scratch
 Background: 
 - Police tried to blame a knife and marijuana for near fatal accident with dad
 - Homemade zongzi by Chinese co-worker day before incident
-- YouTube music video with white guy with sadistic smile and 3 white dots in a triangle in his eyes, zoomed in
+- YouTube music video with white guy with sadistic smile and 3 white dots in a triangle in his eyes, zoomed in, the same 3 white dots in a triangle in the storage lights of a police transport van
 - Researching chordoma after magnesium discovery
 - Thought they laced the food and drink with uranium after visiting OMG 2097 IRC chat and DarkUranium was a username there
 - Concomitantly consumed ~50 magnesium citrate, strontium citrate, boron, calcium, and other pills to prevent uranium seeping into bones, causing chordoma
