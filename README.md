@@ -19,7 +19,7 @@ Pox Party fraud https://jme.bmj.com/content/44/4/257
 
 Results: Skin raised inflammation from 1 fingernail scratch 
 
-## Chainsmoking cigarettes until eye veins become inflammed as an alternative to marijuana for pain relief from Sotret 40mg side effects after Mom trusted the police and blamed marijuana for the June 2015 incident
+## Chainsmoking cigarettes until eye veins become inflammed as an alternative to marijuana for pain relief from Sotret 40mg side effects after Mom trusted the law and police and blamed marijuana for the June 2015 incident and enforce it by incessant yelling and blaming while never listening or able to comprehend me
 Background: 
 - Police tried to blame a knife and marijuana for near fatal accident with dad
 - Homemade zongzi by Chinese co-worker day before incident
