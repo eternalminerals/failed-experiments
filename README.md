@@ -28,7 +28,7 @@ Background:
 - Thought they laced the food and drink with uranium after visiting OMF 2097 IRC chat and DarkUranium was a username there
 - Concomitantly consumed ~50 magnesium citrate, strontium citrate, boron, calcium, and other pills to prevent uranium seeping into bones, causing chordoma
 - Concomitantly, 4chan said "I just found out my dad has been cheating and raping my mom for the last 10 years" and after all this due to the YouTube, thought this was real
-- Dad touched me with his stubble beard as he touched my hand with it as I tried to be asleep, and hit him after believing 4chan and YouTube and OMF 2097
+- Dad touched me with his stubble beard as he touched my hand with it as I tried to be asleep, and hit him with a disgust feeling elbow after believing what 4chan said was true, and that he would touch me with his beard stubble after that, combined with the targetted YouTube programming (I remember them using some kind of Naruto and nightcore music videos with lyrics that seemed like were true and directed at me, custom made
 - Thought dad was going to use a knife and kill us all since he knew I knew what 4chan said, since my obese divorced non-stop loud gossip talking aunt said dad threatened to use a knife and kill her if she left him for someone else 
 - Went upstairs, picked up a knife, mom told me to put them down, i put them down without confronting dad
 - I thought he was going to kill mom and I after he knew I knew he was cheating and raping her for 10 years since 4chan and YouTube were talking to me while the zongzi was possibly laced (This was at IBM Reston, VA around June 2015)
