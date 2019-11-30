@@ -15,6 +15,8 @@ Results: Lymphedema of ear and neck lymph nodes, necrosis & swelling of earlobe
 ## Daily oral antibiotics (Tetracycline, Doxycycline & others) as a cure to reactivated chickenpox misdiagnosed as acne during high school
 Background: Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 
+Pox Party fraud https://jme.bmj.com/content/44/4/257
+
 Results: Skin raised inflammation from 1 fingernail scratch 
 
 ## Nightly 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne after high school but before starting college for about a year, nightly adherence like a religion due to not only previously trusting everyone at first, always, as suggested by freshman biology teacher Mr. Charnitski at TJHSST of Alexandria, VA (who looks like Adam Back and Uncle Sam), but also from personal belief and faith of the excellence and superiority of American doctors, their science, biology, and medicine [in hindsight, seems like there is a fraudulent eugenics agenda against Asian phenotypes based on conflicting standards of beauty and health, as they are excluded from music, movies, books and other positive media]
