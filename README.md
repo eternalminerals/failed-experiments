@@ -1,5 +1,6 @@
 # Never trust anyone with conflicting interests, methods, principles and/or standards of education, health and beauty
 
+
 ## MitoVitan dipped 5-ASA suppository as a cure to isotretinoin-induced colitis
 Results: Delayed violent vomitting the night after, continued nausea, fatigue, increased frequency of BM, rectal pain for more than 1 year
 
