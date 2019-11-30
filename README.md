@@ -15,7 +15,7 @@ Background: Peer & majority encouraged non-vaccinated Chickenpox infection from 
 
 Results: Skin raised inflammation from 1 fingernail scratch 
 
-## Nightly 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne after high school but before starting college for about a year, nightly adherance like a religion due to previously trusting everyone at first, always, as suggested by freshman biology teacher Mr. Charnitski at TJHSST of Alexandria, VA (who looks like Adam Back and Uncle Sam)
+## Nightly 40mg Sotret{Indian generic of Original Brand} (Accutane{Original Brand} (isotretinoin{Chemical name}) biosimilar manufactured by Ranbaxy, an Indian pharmaceutical company) as a cure to reactivated chickenpox misdiagnosed as acne after high school but before starting college for about a year, nightly adherence like a religion due to not only previously trusting everyone at first, always, as suggested by freshman biology teacher Mr. Charnitski at TJHSST of Alexandria, VA (who looks like Adam Back and Uncle Sam), but also from personal belief and faith of the excellence and speriority of American doctors, their science, biology, and medicine [in hindsight, seems like there is a fradualant eugenics agenda against Asian phenotypes based on conflicting standards of beauty and health]
 Background: 
 - Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 - Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
