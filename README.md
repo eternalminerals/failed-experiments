@@ -1,7 +1,7 @@
 # Never trust anyone with conflicting interests, methods, principles and/or standards of education, health and beauty
 
 ## MitoVitan dipped 5-ASA suppository as a cure to isotretinoin-induced colitis
-Background: COQ10 license plate ad
+Background: COQ10 license plate ad in Chantilly, VA
 
 Results: Delayed violent vomitting the night after, continued nausea, fatigue, increased frequency of BM, rectal pain for more than 1 year
 
