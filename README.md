@@ -60,6 +60,4 @@ Results: Eyebrows fell out first week of taking it after high school, endless de
 
 -Qihan/Harry Zhang
 
-I remember them lightly shocking my penis head before the medical leeches and jail when they forced a social situation with me and a white girl, unnatural racemixing agenda 
-
-The USA military is using their poisons, diseases and weapons against me, insidiously mutilating my mind & body, holding my health hostage as they gangstalk and suffocate me, but I would rather cut my dick off and kill myself, Fuck You I Wish Death Upon You
+I remember them lightly shocking my penis head even before the medical leeches and jail when they forced a social situation with me and a white girl, unnatural racemixing agenda, it felt good, the shock, bc it was light, and had distance/circumference 
