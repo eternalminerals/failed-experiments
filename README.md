@@ -61,4 +61,4 @@ Results: Eyebrows fell out first week of taking it after high school, endless de
 
 I remember them lightly shocking my penis head before the medical leeches and jail when they forced a social situation with me and a white girl, unnatural racemixing agenda 
 
-The USA military is using their weapons against me and mutilating my mind & body insidiously, holding me hostage to join them but I would rather cut my dick off and kill myself
+The USA military is using their poisons, diseases and weapons against me, insidiously mutilating my mind & body, holding my health hostage as they gangstalk and suffocate me, but I would rather cut my dick off and kill myself
