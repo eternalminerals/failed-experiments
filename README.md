@@ -48,6 +48,7 @@ Background:
 - Peer & majority encouraged non-vaccinated Chickenpox infection from Edwards Elementary school in Ames, Iowa mimicing acne
 - Accutane advertisement w/ medical illustrations/art on top shelf in Dr. Robert Gurney's dermatology office of Reston, VA
 - 4 years of peer rejection at TJHSST, especially from Asian girls and white boys
+- endless humiliation of my body in front of a significant other (skin peeling from antibiotics & Retin A micro, calling out my boobs in front of a Chinese/Asian girl//male gyno forcing me to tape my fluffy but also hard nipples to wear tshirts without my nipple sticking out)
 - my aunt's tone of telling me that no girl would ever love me or want to be with me after the teacher, peer & majority rejection from high school after seeing the results of self surgery on a butt acne with sewing needle and 70% isopropyl alcohol, or just a safety pin and hot water/flame as disinfectant instead of a lancet and betadine/povidone iodine)
 - cigarette smoking and bleeding hollow world of warcraft, lymph node stagnation, no kicking bags, kicking air, jumping or olympic weightlifting discovered or allowed
 - forced gangstalked HIV speaker/fraud presentation (they did this to me at TJHSST) speech before graduation
