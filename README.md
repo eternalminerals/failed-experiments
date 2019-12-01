@@ -60,4 +60,4 @@ Results: Eyebrows fell out first week of taking it after high school, endless de
 
 -Qihan/Harry Zhang
 
-I remember them lightly shocking my penis head even before the medical leeches and jail when they forced a social situation with me and a white girl, unnatural racemixing agenda, it felt good, the shock, bc it was light, and had distance/circumference 
+I remember them lightly shocking my penis head even before the medical leeches and jail when they forced a social situation with me and a white girl, unnatural racemixing agenda, it felt good, the shock, bc it was light, narrow/thin and had distance/circumference, but that also means they put these sexual implants on my body without my consent, making me feel not even entitled to my own physical body, like an animal
