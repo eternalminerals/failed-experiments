@@ -22,7 +22,7 @@ Results: Skin raised inflammation from 1 fingernail scratch
 ## Chainsmoking cigarettes until eye veins become inflammed as an alternative to marijuana for pain relief from Sotret 40mg side effects after Mom trusted the law and police and blamed marijuana for the June 2015 incident and enforce it by incessant yelling and blaming while never listening or able to comprehend me
 Background: 
 - Police tried to blame a knife and marijuana for near fatal accident with dad
-- Homemade zongzi by Chinese co-worker day before incident
+- Homemade zongzi by Chinese co-worker day before incident, probably laced with some kind of hallucinogen such as angels trumpet/devil's breath/scopolamine/Hyoscine
 - YouTube music video with white guy with sadistic smile and 3 white dots in a triangle in his eyes, zoomed in, the same 3 white dots in a triangle in the storage lights of a police transport van
 - Researching chordoma after magnesium discovery
 - Thought they laced the food and drink with uranium after visiting OMF 2097 IRC chat and DarkUranium was a username there
@@ -31,7 +31,7 @@ Background:
 - Dad touched me with his stubble beard as he touched my hand with it as I tried to be asleep, and hit him with a disgust feeling elbow after believing what 4chan said was true, and that he would touch me with his beard stubble after that, combined with the targetted YouTube programming (I remember them using some kind of Naruto and nightcore music videos with lyrics that seemed like were true and directed at me, custom made
 - Thought dad was going to use a knife and kill us all since he knew I knew what 4chan said, since my obese divorced non-stop loud gossip talking aunt said dad threatened to use a knife and kill her if she left him for someone else 
 - Went upstairs, picked up a knife, mom told me to put them down, i put them down without confronting dad
-- I thought he was going to kill mom and I after he knew I knew he was cheating and raping her for 10 years since 4chan and YouTube were talking to me while the zongzi was possibly laced (This was at IBM Reston, VA around June 2015)
+- I thought he was going to kill mom and I after he knew I knew he was cheating and raping her for 10 years since 4chan and YouTube were talking to me while the zongzi was possibly laced and charged at him with a knee (This was at IBM Reston, VA around June 2015)
 - Thought that now that the chordoma doctors knew that I knew they were causing cancer in patients on purpose for profit, they would make an example out of me by giving me chordoma by having the police inject me with chordoma
 
 Results: Permanent weight gain, lethargy, rectal pain and bleeding, cigarettes no longer feel like how they used to
