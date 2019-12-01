@@ -34,7 +34,7 @@ Background:
 - I thought he was going to kill mom and I after he knew I knew he was cheating and raping her for 10 years since 4chan and YouTube were talking to me while the zongzi was possibly laced and charged at him with a knee (This was at IBM Reston, VA around June 2015)
 - Thought that now that the chordoma doctors knew that I knew they were causing cancer in patients on purpose for profit, they would make an example out of me by giving me chordoma by having the police inject me with chordoma
 
-Results: Permanent weight gain, lethargy, rectal pain and bleeding, cigarettes no longer feel like how they used to
+Results: Forced prison injection, Permanent weight gain, lethargy, rectal pain and bleeding, cigarettes no longer feel like how they used to
 
 ## Tsetsi medicinal leech as a spot cure to reactivated chickenpox misdiagnosed as acne during high school
 Background: 
