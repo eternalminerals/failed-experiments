@@ -1,4 +1,4 @@
-# Never trust anyone with conflicting interests, methods, principles and/or standards of education, health and beauty
+# Never trust anyone with conflicting interests, methods, principles and/or standards of education, health and beauty, especially ugly, overweight caucasian neckbeards with round, hollow eyes who are sexually attracted to Asian girls
 
 ## MitoVitan dipped 5-ASA suppository as a cure to isotretinoin-induced colitis
 Background:
