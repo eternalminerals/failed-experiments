@@ -21,7 +21,7 @@ Results: Skin raised inflammation from 1 fingernail scratch
 
 ## Chainsmoking cigarettes until eye veins become inflammed as an alternative to marijuana for pain relief from Sotret 40mg side effects after Mom trusted the law and police and blamed marijuana for the June 2015 incident and enforce it by incessant yelling and blaming while never listening or able to comprehend me
 Background: 
-- Virginia Police tried to blame/frame a knife and marijuana for near fatal accident with dad
+- YouTube, IBM co-worker, 4chan, Google, Facebook & Virginia Police tried to blame/frame a knife and marijuana for near fatal accident with dad
 - Homemade zongzi by Chinese co-worker day before incident, probably laced with some kind of hallucinogen such as angels trumpet/devil's breath/scopolamine/Hyoscine
 - YouTube music video with white guy with sadistic smile and 3 white dots in a triangle in his eyes, zoomed in, the same 3 white dots in a triangle in the storage lights of a police transport van
 - I began researching chordoma after magnesium discovery because the reason I started CureUC originally was to create a company to cure ulcerative colitis, inspired by the Chordoma story on Forbes
