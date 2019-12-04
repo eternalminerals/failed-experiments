@@ -1,5 +1,7 @@
 # Never trust anyone with conflicting interests, desires, wishes, dreams, ideas, methods, principles and/or standards of education, health and beauty
 
+###### The most effective and least expensive method of discovering new cures and treatments to diseases is to isolate and infect a Chinese boy on purpose, then gangstalk him while forcing him to look at WMAF
+
 ## MitoVitan dipped 5-ASA suppository as a cure to isotretinoin-induced colitis
 Background:
 - COQ10 license plate ad in Chantilly, VA as I was driving home from work in Reston, VA
